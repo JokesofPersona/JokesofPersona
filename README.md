@@ -55,4 +55,4 @@ Hi, so I'm alright with most ships unless they are illegal or just straight up h
 
 
 ## Characters I HVYKIN.
-Joker [Persona 5], Exeller [Sonic.exe SOH], The Spectre [4saken], Matt [The Last Guest], Mugman [Cuphead], Elder Faerie Cookie [CRK], Artful [DOD], Metal Sonic [STH], Rainbow Dash [MLP], Infected [Regretevator], Griefer [Blocktales], 007n7 [ROBLOX HACKER], Rodger [DW] and much more just ask if you wanna know!!
+Joker [Persona 5], Exeller [Sonic.exe SOH], The Spectre [4saken], Matt [The Last Guest], Mugman [Cuphead], Elder Faerie Cookie [CRK], Artful [DOD], Metal Sonic [STH], Rainbow Dash [MLP], Infected [Regretevator], Griefer [Blocktales], 007n7 [RBLX HACKER], Rodger [DW] and much more just ask if you wanna know!!
