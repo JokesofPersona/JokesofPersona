@@ -1,11 +1,11 @@
 # Howdy, Welcome to my Github. !! 
 
-![Banner Image](https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExejlsbG1zNTVnMm9nMHRham5oYXp3cTR3NzFpOHE0czNrNWMzcjJ1ciZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/Mk8jpXI3d53J6fFJBr/giphy.gif)
+![Banner Image](https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExc2o5bGJ5OGlmeG96aTJmN3U2bjkwYnc2Z3NtMnhzZGluNHBieTkzZSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/OwONXEVXT9DNhsXcMs/giphy.gif)
 
 - **[WARNING: I WILL LOOK THROUGH EVERY GITHUB I SEE, JUST IN CASE.]**
 
 ## About Me !!
-- My name is Noir, but you can also call me Ren, Joker or Nix !!
+- My name is Noir, but you can also call me Exeller or Nix !!
 - My birthday is 4/16/2008, I am an adult.
 
 - **Just your local Voice Actor who plays VRChat, Ponytown, ROBLOX and other games !!**
@@ -55,4 +55,4 @@ Hi, so I'm alright with most ships unless they are illegal or just straight up h
 
 
 ## Characters I HVYKIN.
-Joker [Persona 5], Exeller [Sonic.exe SOH], The Spectre [4saken], Matt [The Last Guest], Mugman [Cuphead], Elder Faerie Cookie [CRK], Artful [DOD], Metal Sonic [STH], Rainbow Dash [MLP], Infected [Regretevator], Griefer [Blocktales], 007n7 [RBLX HACKER], Rodger [DW] and much more just ask if you wanna know!!
+Exeller [Sonic.exe SOH], Joker [Persona 5], The Spectre [4saken], Matt [The Last Guest], Mugman [Cuphead], Elder Faerie Cookie [CRK], Artful [DOD], Metal Sonic [STH], Rainbow Dash [MLP], Infected [Regretevator], Griefer [Blocktales], 007n7 [RBLX HACKER], Rodger [DW] and much more just ask if you wanna know!!
